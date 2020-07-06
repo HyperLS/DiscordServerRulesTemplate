@@ -28,6 +28,7 @@ With this simple list—which I intend to keep updating as I find good ideas on 
 ## Contact Information
 
 **Discord:** Rock n' Cat#2335
+
 **Phone:** 919-924-1109
 
 ## TODO
