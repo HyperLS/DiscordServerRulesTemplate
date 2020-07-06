@@ -27,7 +27,7 @@ With this simple list—which I intend to keep updating as I find good ideas on 
 
 ## Contact Information
 
-**Discord:** Ryonez Coruscare#1862
+**Discord:** Rock n' Cat#2335
 
 ## TODO
 
